@@ -2,3 +2,9 @@
 <img width="399" height="294" alt="IMG_0199" src="https://github.com/user-attachments/assets/718a592c-b62a-46bc-abd8-099e473de346"/> 
 </p>
 <p align="center"> stri / dave  ‎  ‎ ‎ ‎ ‎ ‎. ‎ ‎ ‎ ‎  ‎‎ ‎worlds least gay dave fictive <br> 17yo‎ ‎‎‎ ‎‎ ‎  ‎ -15 dni ‎ ‎ ‎ ‎ ‎ ‎. ‎ ‎ ‎ ‎ ‎‎ ‎socially awkward, please <br> int first i'm all types of approachable and cool </p>
+<details>
+<summary align="center">btw</summary>
+
+  <p align="center"><sub>i 24 hour hide / ignore bro ponies indiscriminately because i dont like the guy <br> if i hide you youre still fine to interact if you see me while using another pony its #nobigdeal</sub></p>
+  
+</details>
