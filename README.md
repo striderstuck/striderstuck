@@ -5,6 +5,6 @@
 <details>
 <summary align="center">btw</summary>
 
-  <p align="center"><sub>i 24 hour hide / ignore bro ponies indiscriminately because i dont like the guy <br> if i hide you youre still fine to interact if you see me while using another pony its #nobigdeal</sub></p>
+  <p align="center"><sub>i 24 hour hide / ignore bro ponies indiscriminately because i dont like the guy <br> if i hide you youre still free to interact if you see me while using another pony its #nobigdeal</sub></p>
   
 </details>
